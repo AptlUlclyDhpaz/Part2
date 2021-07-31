@@ -1,1 +1,1 @@
-![puzzlemessage](https://user-images.githubusercontent.com/88254761/127753832-2ed82cfc-62d4-4172-b4ce-53b6b85a7005.png)
+![part2message](https://user-images.githubusercontent.com/88254761/127753840-6600eaac-6d7b-4ca6-866e-d085b1d05004.png)
